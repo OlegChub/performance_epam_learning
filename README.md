@@ -1,0 +1,1 @@
+https://learn.epam.com/myLearning/program?groupGuid=2379170a-07ff-4d93-a38a-9c6b9703600a
